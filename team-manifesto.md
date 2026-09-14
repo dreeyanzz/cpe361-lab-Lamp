@@ -2,7 +2,7 @@
 2.
 3.
 4.
-5. This is a sample sentence that came out of my head functioning like an AI stochastically typing out the thing that first comes out of my head |  hello guys: luke dongque
+5. OOOWW RRRIIGGGHHHT ANOTHER CHANGES NAPUD NI ADRIAN KAY WALA SIYA NAKA SCREENSHTO AHAHAHAHAHAHA
 6.
 7.
 8.
