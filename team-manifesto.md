@@ -7,4 +7,4 @@
 7.
 8. john decierdo is handsome as hell!!
 9.
-10.
+10. Luke dongque is gwapo kaayo
