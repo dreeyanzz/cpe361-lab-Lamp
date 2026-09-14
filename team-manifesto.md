@@ -1,4 +1,4 @@
-1.
+1. all hail maroon and gold
 2.
 3.
 4.
